@@ -1,3 +1,3 @@
-Nama : 
+Nama : Sri Rahayu Indal Fatra
 
-NIM  :
+NIM  : D121181011
